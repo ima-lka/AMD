@@ -1,0 +1,2 @@
+# AMD
+Very good
